@@ -4,4 +4,4 @@ Link - 1  :- https://youtube.com/shorts/t8DnDfy0sYE?feature=share
 # Softskills - Self Evaluation, Linkedin Profile And Resume Builder Assignment (Module-6)
 (Linkedin Profile Link) Link - 1 :- https://www.linkedin.com/in/nikhil-parmar-244624256/
 
-(Resume) Link - 2 :- https://drive.google.com/file/d/1WIE5Yk-UNwScumnbsxCKDnG-SsULY-n2/view?usp=drive_link
+(Resume) Link - 2 :- https://drive.google.com/file/d/1kc9GS-A-UKyodocSfUXEy9lrHYZ55mfq/view?usp=sharing
