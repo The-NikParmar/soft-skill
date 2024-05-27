@@ -5,3 +5,6 @@ Link - 1  :- https://youtube.com/shorts/t8DnDfy0sYE?feature=share
 (Linkedin Profile Link) Link - 1 :- https://www.linkedin.com/in/nikhil-parmar-244624256/
 
 (Resume) Link - 2 :- https://drive.google.com/file/d/1LCH33K4AAHChCadSgrpG3FGBZKQkdXRh/view?usp=sharing
+
+# Softskills - Projects
+Link - 1 :- https://youtu.be/cOw2wvsVx3E
