@@ -12,3 +12,7 @@ Link - 1 :- https://youtu.be/cOw2wvsVx3E
 # Softskills Confidence Building (Activity Session) - Language Barrier , Impromptu  Speech - IT Policies Briefing (Module-7)
 
 Link - 1 :- https://drive.google.com/file/d/1C90-04LktYdSXC-Yg29kgjWo5Z1VQ8zz/view?usp=sharing
+
+# Softskill Module 2) Technology
+
+Link:- https://youtube.com/shorts/rZd4ZAFQilQ?feature=share
