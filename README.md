@@ -16,3 +16,6 @@ Link - 1 :- https://drive.google.com/file/d/1C90-04LktYdSXC-Yg29kgjWo5Z1VQ8zz/vi
 # Softskill Module 2) Technology
 
 Link:- https://youtube.com/shorts/rZd4ZAFQilQ?feature=share
+
+# Module 4) HR Questions
+https://youtube.com/shorts/7s6DzRmEHPk?feature=share
